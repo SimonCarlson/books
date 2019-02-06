@@ -6,7 +6,7 @@ The Great Depression: A Diary
 
 Your Money and Your Brain
 
-How a Second Greader Beats Wall Street
+How a Second Grader Beats Wall Street
 
 All About Asset Allocation
 
