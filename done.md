@@ -1,0 +1,1 @@
+The Millionaire Next Door - interesting insights about the habits of millionaires in America. Focused on dividing the affluent from the high-income consumer type. "Live below your net worth."
