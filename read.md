@@ -1,5 +1,3 @@
-Common Sense On Mutual Funds
-
 Devil Take the Hindmost
 
 The Great Depression: A Diary
