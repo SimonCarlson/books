@@ -22,8 +22,6 @@ The Design of Everyday Things
 
 Deep Work
 
-Sapiens: A Brief History of Humankind
-
 Ideas: A History
 
 Factfulness
