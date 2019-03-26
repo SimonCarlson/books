@@ -2,8 +2,6 @@ Devil Take the Hindmost
 
 The Great Depression: A Diary
 
-Your Money and Your Brain
-
 How a Second Grader Beats Wall Street
 
 All About Asset Allocation
